@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://64.media.tumblr.com/5c18507fbb948dcdcdf2f22f11ac3ba4/75b5238c96ac56a2-8e/s540x810/299ba8c28ebe1fa7f1f1600bd3809d28d7b34721.gif"  />
+<img align="right" height="150" src="[https://64.media.tumblr.com/5c18507fbb948dcdcdf2f22f11ac3ba4/75b5238c96ac56a2-8e/s540x810/299ba8c28ebe1fa7f1f1600bd3809d28d7b34721.gif](https://i.im.ge/2024/09/09/fZmtOq.logo-fulanboes-1.png)"  />
 
 ###
 
